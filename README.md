@@ -1,5 +1,5 @@
 - 👋 Hi, I’m o Rodrigo Frederico
-- 👀 I’m interested in adentrar ao mercado de trablho 
+- 👀 I’m interested in adentrar ao mercado de trablho TI
 - 🌱 I’m currently learning java 
 - 📫 How to reach me @rfrederico8@gmail.com
 - ⚡ Fun fact: estudante
